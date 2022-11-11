@@ -1,3 +1,7 @@
-sup slat i guess this is kinda the place i post stuff now (spoiler alert if i do ever post anything it's bound to be ass)
+hiya! 
 
-idek what to put here honestly
+i'm yami i guess here's some things about me!
+
+- ROM Hack Developer
+- Video Game Music Composer (specifically Megadrive)
+- Brawlhalla Addict (even though I’m garbage and a Diana/Koji main)
